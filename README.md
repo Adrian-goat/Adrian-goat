@@ -12,4 +12,5 @@ adrian.roque.lima@escola.pr.gov.br
 
 instagram :@adrian_goat013
 
-![]( https://tenor.com/pt-BR/view/elbicho-vicotrevs-cr7-gif )
+
+![cristiano-ronaldo-drinking](https://github.com/user-attachments/assets/b6176ffd-083d-446f-8427-aa67a11fb426)

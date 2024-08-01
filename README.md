@@ -12,4 +12,4 @@ adrian.roque.lima@escola.pr.gov.br
 
 instagram :@adrian_goat013
 
-![](https://tenor.com/pt-BR/view/elbicho-vicotrevs-cr7-gif-18626961)
+![]( https://tenor.com/pt-BR/view/elbicho-vicotrevs-cr7-gif )
